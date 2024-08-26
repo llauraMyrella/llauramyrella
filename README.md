@@ -1,4 +1,5 @@
 ## oi  👋
-![descrição do GIF](<img src="https://media1.tenor.com/m/6w-Qp7e6PAAAAAAC/what-omg.gif" alt="a man in a police uniform is smiling while standing next to another police officer ."/>![image](https://github.com/user-attachments/assets/0bccb066-419a-4538-85bf-60530fbd873c)
+![descrição do GIF](<img src="https://media1.tenor.com/m/IzRxGxxldqoAAAAC/ship-peraltiago.gif" alt="a man and a woman are posing for a picture in front of a no standing security checkpoint sign"/>![image](https://github.com/user-attachments/assets/5ee04669-8826-46d7-9366-8486898355bb)
 )
+
 
